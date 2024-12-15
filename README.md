@@ -14,6 +14,3 @@ IM AWESOME please dont be afraid to int I LOVE MAKING NEW FRIENDS!! I may be awk
 main info is on .co/bzooks (for now, i'll move it to the split one later) & YAH! im coolplease talk to me 
 
 
-06:02[meoww #2] whispers: u got clocked lol stay silent and stay being a edater lollll
-
-telling someone to slit to the bone over ponytown drama is pathetic btw, youre going offline everytime you send me something but youre clearly checking my github, leave me the fuck alone omfg😭
