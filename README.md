@@ -1,10 +1,14 @@
-![image](https://github.com/user-attachments/assets/099a7705-cea6-44b8-ac5f-47d1721eb067)
+![image](https://github.com/user-attachments/assets/13199011-9636-4e4e-880f-8eb3e44697a2)
 
-Hi I WILL MAKE THIS LOOK NICE ( I JUST DONTKNOW HOW )
 
-i use zuka, poison or bonnibel!! 
-im a 16yo genderless aroflux ace lesbian 
+Bello!!! I will make this look pretty like my friends, i just dont have the ENERGY 💜
 
-huge musical fan!!! currently obsessed with charlie and the chocolate factory & the guy who didnt like musicals ^_^
+split / bonnibel / poison ++ many more
 
--- if im being dry at any point its not your fault, ive been rough since october and sometimes i just dont have the energy to dm / sound lively
+minor , genderless aroflux + ace lesbian :3
+
+
+you will typically find me at the phighting! area, or the bakery !! if im not there im probably on island or just with my friends ^_^
+
+IM AWESOME please dont be afraid to int I LOVE MAKING NEW FRIENDS!! I may be awkward at first while getting to know you, but i usually loosen up after a few days !!
+main info is on .co/bzooks (for now, i'll move it to the split one later) & YAH! im coolplease talk to me 
