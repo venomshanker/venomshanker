@@ -1,16 +1,12 @@
-![image](https://github.com/user-attachments/assets/13199011-9636-4e4e-880f-8eb3e44697a2)
+I LOVE SCYKER I LOVE SCYKER I LOOVEE SCYKER😭
+![image](https://github.com/user-attachments/assets/e2e9d9a6-f83c-45f0-8471-466dc10c44d7)
 
 
-Bello!!! I will make this look pretty like my friends, i just dont have the ENERGY 💜
 
-split / bonnibel / poison ++ many more
+bonnibel / poison ++ any cos names : girlfail lesbian,, 17yo she / it pronoun user
 
-minor , genderless aroflux + ace lesbian :3
+im typically at the phighting/roblox area, if im not there you'll find me at bakery :3 (if im not there, im with my friends!)
 
+please dont diss my interests in front of me, i WILL take it personally because im extremely defensive of these interests (phighting/regretevator/slightly dandys world, slay the princess, history & biology) 
 
-you will typically find me at the phighting! area, or the bakery !! if im not there im probably on island or just with my friends ^_^
-
-IM AWESOME please dont be afraid to int I LOVE MAKING NEW FRIENDS!! I may be awkward at first while getting to know you, but i usually loosen up after a few days !!
-main info is on .co/bzooks (for now, i'll move it to the split one later) & YAH! im coolplease talk to me 
-
-
+under 14 dniuf!!!!!!!!!!!! It makes me feel oddballlll and if you dont tell me thats on you 😓
