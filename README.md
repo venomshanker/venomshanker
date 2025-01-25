@@ -3,11 +3,11 @@ I LOVE SCYKER I LOVE SCYKER I LOOVEE SCYKER😭
 
 
 
-bonnibel / poison ++ any cos names : genderfae lesbian,, 17yo she / it pronoun user
+bonnibel / valk ++ any cos names : genderfae lesbian,, 17yo she / it pronoun user
 
 im typically at the phighting/roblox area, if im not there you'll find me at bakery :3 (if im not there, im with my friends!)
 
-cringe but free - please dont diss my special interests/attachments infront of me geulp (phighting/reg, slay the princess, biology) ((valk, broker, subspace ++ split))
+cringe but free - please dont diss my special interests/attachments infront of me geulp (phighting/reg, slay the princess, biology) ((valk, broker, subspace ++ split & princess bubblegum))
 
 ^^ i get attached to characters as a form of coping lowwkeeyy so pleasee please be epic coolsauce and try not to be a freak about them (at my big age i know)
 
