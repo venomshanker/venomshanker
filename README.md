@@ -1,22 +1,21 @@
-I LOVE SCYKER I LOVE SCYKER I LOOVEE SCYKER😭
-![image](https://github.com/user-attachments/assets/e2e9d9a6-f83c-45f0-8471-466dc10c44d7)
+<p align="center">
+<img src="https://files.catbox.moe/ifrec5.webp">
+</p> 
 
+when i find out how to centre teext its over for you guys!!!!!!!!!!!!!!!!!!!
 
+*B*onnibel or **V**alk - 17yo *genderfae* lesbian 
 
-bonnibel / valk ++ any cos names : genderfae lesbian,, 17yo she / it pronoun user
+i am highly attached to my interests + certain characters from these interests "(ó_o) [valk , broker, subspace + medkit - phighting / split - reg / princess bubblegum - adventure time] 
 
-im typically at the phighting/roblox area, if im not there you'll find me at bakery :3 (if im not there, im with my friends!)
+(^^ i get attached to characters as a form of coping, please try not to be freakster about these guys around me... at my grown age..)
 
-cringe but free - please dont diss my special interests/attachments infront of me geulp (phighting/reg, slay the princess, biology) ((valk, broker, subspace ++ split & princess bubblegum))
+under 14 DNIUF!!! Please tell me if youre under 14 .. gulps loudly..
 
-^^ i get attached to characters as a form of coping lowwkeeyy so pleasee please be epic coolsauce and try not to be a freak about them (at my big age i know)
+IM ALSO A HUUGEE SHIPPER if you have an issues with rarepairs DO NOT TALK TO MEEE!! 
 
-under 14 dniuf!!!!!!!!!!!! It makes me feel oddballlll and if you dont tell me thats on you 😓
+HEH basically if its not a darkship i fw it (with the exception of subkit, zukaspace + rocketspace *tugs collar)
 
-[rentry](https://rentry.co/diallup)
+----------
 
----
-
-"i know its such an old [cliche,,,](https://open.spotify.com/track/4atoVaweAZGR0nEUZseIC0?si=2b40f662ff934d37) but baby it aint you, its me! (i mean it, no hyperbole! no really, youre not listening, its literally ME!!)"
-
-i love you bear ghost please dont get crushed by a falling trampoline :/
+[art cred](https://x.com/fishtisms)
