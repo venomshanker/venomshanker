@@ -1,21 +1,30 @@
+
+main info on [rentry](https://rentry.co/nulltitty)
+
+defensive + attached to characters (currently null, split, subspace + folly)
+
+feel free to interact !! i love talking to new ppl <3 (usually offtab, whisper me!!)
+
+i am defensive of my interests (mainly science + history) (if you get facts wrong i die irl)
+
+no dni i will hide you if youre weird as hell
+
+also i make animal puns alot do not be shocked if i drop one
+
+I AM A DANDY WORLD FAN IF YOU CANNOT TELL BTW i may be on your dni </3
+
+14- dniuf if you int i'll pull the trigger i swear i'll do it
+
+i also dont fuck with darkships and a few ships due to headcanons . . .
+
+^ zukaspace + rocketspace and a few more *!!*
+
+
+
 <p align="center">
-<img src="https://files.catbox.moe/ifrec5.webp">
+<img src="https://files.catbox.moe/21bhcx.gif">
 </p> 
-
-when i find out how to centre teext its over for you guys!!!!!!!!!!!!!!!!!!!
-
-*B*onnibel or **V**alk - 17yo *genderfae* lesbian 
-
-i am highly attached to my interests + certain characters from these interests "(ó_o) [valk , broker, subspace + medkit - phighting / split - reg / princess bubblegum - adventure time] 
-
-(^^ i get attached to characters as a form of coping, please try not to be freakster about these guys around me... at my grown age..)
-
-under 14 DNIUF!!! Please tell me if youre under 14 .. gulps loudly..
-
-IM ALSO A HUUGEE SHIPPER if you have an issues with rarepairs DO NOT TALK TO MEEE!! 
-
-HEH basically if its not a darkship i fw it (with the exception of subkit, zukaspace + rocketspace *tugs collar)
 
 ----------
 
-[art cred](https://x.com/fishtisms)
+[art cred](https://x.com/Shast3yy/status/1835499294608052368?t=BaT8RMvLGjIW3XBYrijwCg&s=19)
