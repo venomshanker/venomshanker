@@ -1,30 +1,29 @@
 
 main info on [rentry](https://rentry.co/nulltitty)
 
-defensive + attached to characters (currently null, split, subspace + folly)
+i attach myself to characters as a form of coping, i'll be defensive of the characters im attached to, so dont be weird abt them to me please
 
-feel free to interact !! i love talking to new ppl <3 (usually offtab, whisper me!!)
+dont be scared to talk to me!! i love meeting new people, just make sure you whisper or i might not see it...
 
-i am defensive of my interests (mainly science + history) (if you get facts wrong i die irl)
+i am weeeiird about my special interests, if you get a fact wrong i'll correct you but im not tryna be ruuude
 
-no dni i will hide you if youre weird as hell
+only dni is -14, it just makes me uncomfortable, i'll hide you if i dont like you
 
-also i make animal puns alot do not be shocked if i drop one
+i do not fuck with darkships, so dont try and befriend me if you ship anything like that cuz i think ur a freak
 
-I AM A DANDY WORLD FAN IF YOU CANNOT TELL BTW i may be on your dni </3
+PLEASE interact if you're into slay the princess PLEASE PLEASE PLEASE!! i love stp and have no friends who do its so sad you guys..
 
-14- dniuf if you int i'll pull the trigger i swear i'll do it
+okay whatever go my buildermonlings...
 
-i also dont fuck with darkships and a few ships due to headcanons . . .
-
-^ zukaspace + rocketspace and a few more *!!*
+(hi snurbo, goata, loafster, strawbedberri, chairi and *bea*baboobie:3)
 
 
 
-<p align="center">
-<img src="https://files.catbox.moe/21bhcx.gif">
+
+<p align="right">
+<img src="https://files.catbox.moe/mq0jdc.webp">
 </p> 
 
 ----------
 
-[art cred](https://x.com/Shast3yy/status/1835499294608052368?t=BaT8RMvLGjIW3XBYrijwCg&s=19)
+[art cred](https://x.com/PlumBuildermon)
