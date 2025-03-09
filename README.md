@@ -24,6 +24,11 @@ okay whatever go my buildermonlings...
 <img src="https://files.catbox.moe/mq0jdc.webp">
 </p> 
 
-----------
-
 [art cred](https://x.com/PlumBuildermon)
+
+---
+
+
+what if i was peak.. [ careful! may contain yuri ! ]
+
+im gonna use this space to rant about stuff [positive] at the end of the week i think, so every friday/saturday
