@@ -27,7 +27,4 @@ okay whatever go my buildermonlings...
 
 ---
 
-
-what if i was peak.. [ careful! may contain yuri ! ]
-
-im gonna use this space to rant about stuff [positive] at the end of the week i think, so every friday/saturday
+STREAM PRETENDER BY LILLY CROW!!!!!!!!!!
