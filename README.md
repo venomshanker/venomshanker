@@ -1,5 +1,4 @@
-
-main info on [rentry](https://rentry.co/nulltitty)
+more info on [strawpage](https://sfothletsky.straw.page) + it looks nicer !! send me stuff :3
 
 i attach myself to characters as a form of coping, i'll be defensive of the characters im attached to, so dont be weird abt them to me please
 
